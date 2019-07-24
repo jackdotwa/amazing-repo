@@ -1,1 +1,1 @@
-## Welcome to the Amazing Repo
+## Welcome to the Amazzing Repo
